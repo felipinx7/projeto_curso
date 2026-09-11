@@ -1,0 +1,1 @@
+# Olá me chamo Felipe, e quero entrar pra Área TECH como dev Frontend
